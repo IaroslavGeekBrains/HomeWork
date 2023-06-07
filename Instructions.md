@@ -10,6 +10,8 @@ Line from Mariya
 
 Line from Alexandr 
 
+With the best regards and sincere respect Line from Igor
+
 
 by Maks
 
